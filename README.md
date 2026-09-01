@@ -1,3 +1,2 @@
 # Green-Roofs-and-Living-Walls-in-Dense-Cities
-
 Vegetated rooftops and vertical gardens reduce urban heat island effects, absorb rainwater, and improve air quality. They also provide habitats for pollinators and birds within densely built environments. Native plant species are preferred as they require less maintenance and support local insects. These living infrastructures transform grey concrete into vibrant, productive spaces ✅✅✅
